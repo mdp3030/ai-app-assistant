@@ -1,1 +1,1 @@
-# Privacy Policy for AI Support Assistant App
+# Useful html pages for AI Support Assistant App
